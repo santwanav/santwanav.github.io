@@ -1,0 +1,3 @@
+# Thoughts on Corporate Life
+
+
